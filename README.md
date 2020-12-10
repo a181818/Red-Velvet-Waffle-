@@ -2,17 +2,17 @@
 
      ingredients :
 
-2 cups of flour
-2 teaspoons of baking powder
-2 teaspoons of baking soda
-1/2 teaspoon of salt
-4 tablespoon of butter
-1/4 cup of brown suger
-3 eggs
-1 tablespoon of food colour (red)
-1 1/2 spoon of natural cocoa
-2 cups of buttermilk
-hersheys chocolate syrup
+1) 2 cups of flour
+2) 2 teaspoons of baking powder
+3) 2 teaspoons of baking soda
+4) 1/2 teaspoon of salt
+5) 4 tablespoon of butter
+6) 1/4 cup of brown suger
+7) 3 eggs
+8) 1 tablespoon of food colour (red)
+9) 1 1/2 spoon of natural cocoa
+10) 2 cups of buttermilk
+11) hersheys chocolate syrup
 
       Steps : 
 1) Add flour , baking powder , baking soda and salt in a bowlA.
